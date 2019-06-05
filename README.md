@@ -6,7 +6,7 @@ https://selenaydemirbasisajerk.azurewebsites.net/
 I started Selenay Demirbas Is A Jerk.com because Selenay Demirbas is a jerk.
 
 
-![alt text](https://ibb.co/m6kLgdL)
+![jerk](https://ibb.co/m6kLgdL)
 
 
 
